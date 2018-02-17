@@ -1,0 +1,1 @@
+Each branch contains a portion of the project. I don't think I'll ever post the full project here, just because Undertale is a game you have to pay for, and that would be terrible of me to do.
